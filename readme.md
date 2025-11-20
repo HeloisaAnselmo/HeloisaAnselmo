@@ -1,4 +1,5 @@
 # 💫 About Me:
+Sou Heloisa estudante de T.i e nesse espaço você pode acompanhar meus projetos
 Estudante de T.i<br>
 
 
